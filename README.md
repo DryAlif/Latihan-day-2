@@ -1,1 +1,0 @@
-Nama : Derry Alif Np
